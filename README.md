@@ -33,7 +33,7 @@ I'm a passionate video game tester with over 15 years of experience as a player,
 
 💬 Ask me about my youtube channel
 
-📫 How to reach me on my email carlosbedoyalopez1999@gmail.com
+📫 How to reach me on my email carlosandresbedoya1999@gmail.com
 
 😄 ¡Thank you so much! 
 
