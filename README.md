@@ -15,6 +15,8 @@ I'm a passionate video game tester with over 15 years of experience as a player,
 - Zephyr
 - Jmeter
 - Trello
+- Selenium
+- Katalon
 
 
 ## 🔗 Links
